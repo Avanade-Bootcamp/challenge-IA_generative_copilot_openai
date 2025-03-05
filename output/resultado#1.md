@@ -1,0 +1,3 @@
+A imagem mostra uma praia tropical com areia dourada e ondas suaves quebrando na costa. Há várias palmeiras altas e inclinadas ao longo da praia, com folhas verdes e troncos marrons. O céu está claro e azul, com algumas nuvens brancas espalhadas. A vegetação verde é visível ao longo da linha da praia, adicionando um contraste vibrante à cena.
+
+A paisagem transmite uma sensação de tranquilidade e relaxamento, capturando a beleza natural de uma praia tropical. Você gostaria de saber mais sobre praias tropicais ou talvez tenha outra imagem interessante para compartilhar?
